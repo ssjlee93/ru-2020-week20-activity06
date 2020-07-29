@@ -1,0 +1,1 @@
+# ru-2020-week20-activity06
